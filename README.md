@@ -3,4 +3,4 @@ Second Repository Team Project
 
 
 
-Eventhemost intetesting man in the world think im farmor interesting than him..Thisis such a cool too for projects what a brilliat idea.GOOOOO "GITHUB TEAM"
+Even the most interesting man in the world think im far more interesting than him..This is such a cool too for projects what a brilliat idea.GOOOOO "GITHUB TEAM"
